@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - Linkedin-https://www.linkedin.com/in/nimesh-mishra-47417922a
-- G-mail-nimeshmishra444@gmail.com
+- E-mail -nimeshmishra444@gmail.com
  
 
 <!---
